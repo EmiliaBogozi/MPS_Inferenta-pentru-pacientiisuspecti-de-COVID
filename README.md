@@ -1,0 +1,1 @@
+# Inferen-a-pentru-pacien-ii-suspec-i-de-COVID
